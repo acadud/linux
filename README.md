@@ -11,8 +11,7 @@ main test
 
 ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
-![image](https://github.com/user-attachments/assets/b7e5d82d-df85-4bc8-bce7-e9997c260a82)
+![image](https://github.com/user-attachments/assets/8ab4e1ca-9267-4bb2-8e8c-c2a80d35f883)
 
-![image](https://github.com/user-attachments/assets/b01d1f7e-5bee-429d-9ba0-f4dd941a38b6)
 
 ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
